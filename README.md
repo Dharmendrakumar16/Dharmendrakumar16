@@ -9,7 +9,7 @@
 
 - 📫 How to reach me **Dharmendra.kumar.000016@gmail.com**
 
-- 📄 Know about my experiences [https://dharmendrakumar16.github.io/Dharmendra-Kumar/Images/CV.pdf](https://dharmendrakumar16.github.io/Dharmendra-Kumar/Images/CV.pdf)
+- 📄 Know about my experiences [https://dharmendrakumar16.github.io/Dharmendra-Kumar/Images/Dharmendra%20Kumar%20Resume.pdf](https://dharmendrakumar16.github.io/Dharmendra-Kumar/Images/Dharmendra%20Kumar%20Resume.pdf)
 
 - ⚡ Fun fact **I am Funny😍😍**
 
